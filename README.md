@@ -1,6 +1,6 @@
 - 👋 Hi, I’m SEODesignLabᵍᵐ, LLC
 - 👀 I’m interested in ...Web2 & Web3
-- 🌱 I’m currently learning ... Blockchain & Smart Contracts
+- 🌱 I’m currently learning ... Full Stack Smart Contracts on the blockchain for dev/mainnet
 - 💞️ I’m looking to collaborate on ... Blockchain Projects
 - 📫 How to reach me ... https://linktr.ee/xzin
 
