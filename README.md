@@ -13,6 +13,10 @@ We've grown accounts from $0 into 6-7 Figure lead-generating machines monthly us
 We provide marketing and website services for law firm SEO, Legal Firms, Medical SEO, Medical Offices, Vet SEO, Veterinary Clinics, Plumber SEO, Local Plumbers, Chiropractic SEO, Chiropractic Clinics, Photographer SEO. Photographers, Pest control SEO, Pest Control Services, Dental Offices, HVAC SEO, HVAC Services, Plastic Surgery SEO, Plastic Surgeons, E-Commerce, Lead Generation, Lead Sign-ups, and many many more.
 
 Get in touch with SEODesignLab, LLC, and get a free SEO audit today. 20% off first-time orders. Gain deeper insights into your competitors.
+Start today: https://seodesignlab.com/
+
+Are you interested in blockchain technology for your business? We offer web3 dApps ready to go for online retailers or #NFT collection owners.
+Read more: https://web3.seodesignlab.com/
 
 <!---
 SEODesignLab/SEODesignLab is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
